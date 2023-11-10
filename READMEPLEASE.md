@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Emomalijon Murodzoda, @haheh81bs
+- 👋 Hi, I’m Emomalijon Murodzoda, @scullnbones
 - 👀 I’m interested in F1, football currently.
 - 🌱 I’m currently learning somewhat called coding and programming, but still learning. IT IS HARD AF.
 - 💞️ I’m not looking to collaborate on anything really.
